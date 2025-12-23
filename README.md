@@ -62,7 +62,7 @@ I value ownership, transparency, feedback culture, and continuous growth.
 ---
 
 ## Контакты | Contacts
-- Mail: [kmomotov@yandex.ru](mailto:kmomotov@yandex.ru)
+- Mail: [kmomotov@yandex.ru](mailto:kmomotov@yandex.ru) | [kamomotov@gmail.com](mailto:kamomotov@gmail.com)
 - WhatsApp: https://wa.me/79097548399
 - Telegram: https://t.me/AreNotAvailable_il
 
